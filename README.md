@@ -2,8 +2,7 @@
     👀 I see you're interested in computer development, AI, and cybersecurity.
 
 
-
-![tumblr_210ff7d437fc2e4cd5b6a00ba0e25fcd_e591150e_500](https://github.com/HandleYeat/HandleYeat/assets/157603776/3b789fb9-edf4-4cc9-94c6-5a184f493f52)
+![tumblr_17e23e5704af47a7c0a5c2c833ac48e6_49e35159_540](https://github.com/HandleYeat/HandleYeat/assets/157603776/42460ecc-dc5d-4dad-94b9-76b77e6b8d24)
 
     🌱 Currently, you're learning JavaScript.
     💞️ Open to collaboration, that's great!
